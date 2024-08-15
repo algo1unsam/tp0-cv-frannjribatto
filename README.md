@@ -1,6 +1,6 @@
 # TP0-CV
 
-![](https://img.freepik.com/free-photo/user-profile-icon-front-side_187299-39596.jpg?size=626&ext=jpg)
+![](https://media.istockphoto.com/id/587805156/vector/profile-picture-vector-illustration.jpg?s=612x612&w=0&k=20&c=gkvLDCgsHH-8HeQe7JsjhlOY6vRBJk_sKW9lyaLgmLo=)
 #** Presentacion de Franco Ribatto**
 
 _Esta es una breve descripcion de mi persona, soy de Leo, pelo castaño, nada tacaño, y no colecciono nada, guardo la ropa, desordenada_
